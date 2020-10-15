@@ -1,1 +1,1 @@
-![](/MSDSCert.jpg)
+![](/MSDSCert.png)
